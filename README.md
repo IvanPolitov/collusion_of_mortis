@@ -1,1 +1,1 @@
-# collusion_of_mortis
+# collusion_of_mortis![[й.png]]
